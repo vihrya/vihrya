@@ -12,5 +12,5 @@ c + h is fine :) i'm afk and off-tab a lot so use whispers in case you wanna int
 
 ![](https://komarev.com/ghpvc/?username=vihrya&label=da+visitors+++&color=5d16ab&style=flat-squre) </br>
 
-might update this later with more stuff but for now i've had enough
+might update this later with more stuff but for now i've had enough</br>
 pfp is by @realkeylogger on tumblr
