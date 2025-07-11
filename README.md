@@ -1,4 +1,4 @@
-<p>hi i'm vikh. they/it 18+ autistic</br>
+<p>hi my name is vikh or coda. they/it 18+ autistic</br>
 this page is made for ponytown purposes lmao</p>
 
 i'm very open to chat though i might be a bit awkward at first. not really used to interact with ppl. sorry</br>
